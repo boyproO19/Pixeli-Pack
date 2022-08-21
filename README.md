@@ -5,3 +5,5 @@
 
 Official website (Under development): https://pixeli.pages.dev
 Discord for contact: https://discord.gg/fhbh4tRXyz
+
+:D
